@@ -1,4 +1,4 @@
-### Hi there 👋 I'm Hunter!
+### Hi there 👋 I'm Hunter Gierhart!
 
 - 🔭 I’m a Commercial Partnerships Coordinator for Sony Music Entertainment
 - 📍 I'm a native Texan living in New York since 2021
